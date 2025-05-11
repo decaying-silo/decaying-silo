@@ -1,9 +1,10 @@
-![1000001937](https://github.com/user-attachments/assets/172e5277-d615-42ed-b947-4bc10a8c03eb)
+![1000002072](https://github.com/user-attachments/assets/a3d3934c-4f4b-4202-90b1-e68f7b3d0af5)
 
 
 
 
-<code style="color : Orangered">cr: @Perefone on x, formerly twitter</code>
+
+<code style="color : Orangered">cr: Flood Escape 2</code>
 </p>
 
 
@@ -20,5 +21,5 @@ strawgpage ... https://aeinx1zdxz.straw.page
 
 
 <p align="center">
-    <code style="color : Orangered">"lelelelele..."</code>
+    <code style="color : Orangered">"the quiet weirdo is me"</code>
 </p>
