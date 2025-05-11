@@ -20,5 +20,5 @@ strawgpage ... https://aeinx1zdxz.straw.page
 
 
 <p align="center">
-    <code style="color : Orangered">"Poisonous Chasm and Decaying Silo (V2) glazer..."</code>
+    <code style="color : Orangered">"lelelelele..."</code>
 </p>
