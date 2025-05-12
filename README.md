@@ -21,5 +21,5 @@ strawgpage ... https://aeinx1zdxz.straw.page
 
 
 <p align="center">
-    <code style="color : Orangered">"the quiet weirdo is me"</code>
+    <code style="color : Orangered">"FE2 OST ethusiast!"</code>
 </p>
