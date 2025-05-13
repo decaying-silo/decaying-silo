@@ -10,7 +10,7 @@
 
 
 
-discord: _luckypizza
+discord: ech0inthesilo
 
 strawgpage ... https://aeinx1zdxz.straw.page
 
