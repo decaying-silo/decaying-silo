@@ -1,10 +1,11 @@
-![1000002114](https://github.com/user-attachments/assets/8c348a31-7c3a-4737-be56-ddb892ebcb4d)
+![1000002341](https://github.com/user-attachments/assets/fa9c21f9-77d5-40aa-ab84-c6e463266b36)
 
 
 
 
 
-<code style="color : Orangered">whats with my twitter dawg</code>
+
+<code style="color : Orangered">i love bro</code>
 </p>
 
 
