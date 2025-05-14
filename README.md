@@ -1,4 +1,4 @@
-![1000002510](https://github.com/user-attachments/assets/acb4638b-0ba1-4ee8-be8c-832edad32b3a)
+![1000002696](https://github.com/user-attachments/assets/2ad40d46-5ccd-43ad-861e-196a8d4f61dc)
 
 
 
@@ -6,7 +6,8 @@
 
 
 
-<code style="color : Orangered">MY FRIEND KEPT SAYING THEIR ART WAS BETTER SYBAU YOU DREW FEET</code>
+
+<code style="color : Orangered">ok im sorry WHHAT</code>
 </p>
 
 
