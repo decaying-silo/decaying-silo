@@ -14,7 +14,7 @@
 
 discord: ech0inthesilo
 
-strawgpage ... >> REWORKING
+strawgpage ... >> MY DUMBASS LOST THE ACCOUNT I MADE IT IN 😢
 
 .
 .
