@@ -1,11 +1,12 @@
-![1000002341](https://github.com/user-attachments/assets/fa9c21f9-77d5-40aa-ab84-c6e463266b36)
+![1000002510](https://github.com/user-attachments/assets/acb4638b-0ba1-4ee8-be8c-832edad32b3a)
 
 
 
 
 
 
-<code style="color : Orangered">i love bro</code>
+
+<code style="color : Orangered">MY FRIEND KEPT SAYING THEIR ART WAS BETTER SYBAU YOU DREW FEET</code>
 </p>
 
 
