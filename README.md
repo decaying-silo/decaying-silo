@@ -1,4 +1,4 @@
-![1000002696](https://github.com/user-attachments/assets/2ad40d46-5ccd-43ad-861e-196a8d4f61dc)
+![1000002766](https://github.com/user-attachments/assets/ce9038af-da30-4f85-b925-af488d89a227)
 
 
 
@@ -7,14 +7,15 @@
 
 
 
-<code style="color : Orangered">ok im sorry WHHAT</code>
+
+<code style="color : Orangered">^q^</code>
 </p>
 
 
 
 discord: ech0inthesilo
 
-strawgpage ... >> MY DUMBASS LOST THE ACCOUNT I MADE IT IN 😢
+strawgpage ... >> MY DUMBASS LOST THE ACCOUNT I MADE IT IN. so reworking.
 
 .
 .
@@ -24,5 +25,12 @@ strawgpage ... >> MY DUMBASS LOST THE ACCOUNT I MADE IT IN 😢
 
 
 <p align="center">
-    <code style="color : Orangered">"FE2 OST ethusiast!"</code>
+    <code style="color : Orangered">"TO SNAP THE SINEW, I WANT
+TO GET WITHIN YOU, I WANT
+TO SCAR THE TISSUE
+BUTTERFLY AND RECTIFY YOU
+I NEED TO BE YOUR AFTERLIFE
+EUCHARIST, I DEIFY
+GOD, OH, FUCK THE FORK AND KNIFE
+I’LL RIP IN HANDS AND TEETH AND TAKE A BITE"</code>
 </p>
