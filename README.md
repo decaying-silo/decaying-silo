@@ -14,7 +14,7 @@
 
 discord: ech0inthesilo
 
-strawgpage ... https://aeinx1zdxz.straw.page
+strawgpage ... >> REWORKING
 
 .
 .
