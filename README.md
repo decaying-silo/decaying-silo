@@ -15,7 +15,7 @@
 
 discord: ech0inthesilo
 
-strawgpage ... >> MY DUMBASS LOST THE ACCOUNT I MADE IT IN. so reworking.
+strawgpage ... >> https://decayingvanity.straw.page/
 
 .
 .
