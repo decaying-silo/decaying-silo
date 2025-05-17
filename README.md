@@ -13,6 +13,14 @@
 </p>
 
 
+<p align="center">
+    <code style="color : Orangered">"Ozo, Is that you? LOL, it must be! hope you still get out there and pwn, so fun."</code>
+</p>
+
+
+
+
+
 
 discord: ech0inthesilo
 
@@ -23,8 +31,3 @@ strawgpage ... >> https://decayingvanity.straw.page/
 .
 .
 .
-
-
-<p align="center">
-    <code style="color : Orangered">"Ozo, Is that you? LOL, it must be! hope you still get out there and pwn, so fun."</code>
-</p>
