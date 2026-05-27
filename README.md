@@ -2,7 +2,7 @@
 
   ![hikkipz on tumblr!](https://64.media.tumblr.com/35b6d28df41ed953ffbca2efa6aa58b3/6371967852f5b89e-8e/s640x960/6d064fbc38d6165306db0edad21abdc266a55e84.gifv)
 
-𝗦𝗘𝗩𝗜 !! ┆ 𝗦𝗛𝗘/𝗜𝗧 ![](https://64.media.tumblr.com/d6d10db160915a43250f36b3f502b7d2/a37b066fbd53f8a4-6e/s75x75_c1/b287aaf6bafec60532da8e448ab896c6bcea09f2.gifv)
+𝗦𝗜𝗟𝗩𝗘𝗥 !! ┆ 𝗦𝗛𝗘/𝗜𝗧 ![](https://64.media.tumblr.com/d6d10db160915a43250f36b3f502b7d2/a37b066fbd53f8a4-6e/s75x75_c1/b287aaf6bafec60532da8e448ab896c6bcea09f2.gifv)
 
  ✧₊⁺ 𝟭𝟵 | 𝗗𝗫'𝗗 𝗗𝗜𝗗 𝗦𝗬𝗦𝗧𝗘𝗠 ![](https://64.media.tumblr.com/41999894423d101c6c259f98d9026479/af5d09d7c42bd261-10/s75x75_c1/784bc83a253ef7c95ed78ee66bd38876ce588969.gifv) ꒰ 𝗔𝘀𝗸 𝗳𝗼𝗿 𝗳𝗿𝗼𝗻𝘁 𝗼𝗿 𝗰𝗵𝗲𝗰𝗸 𝗴𝗶𝘁𝗵𝘂𝗯 𝘀𝘁𝗮𝘁𝘂𝘀 + 𝗜𝗡𝗧 𝗪/ 𝗖𝗔𝗨𝗧𝗜𝗢𝗡 𝗔𝗧 𝗔𝗟𝗟 𝗧𝗜𝗠𝗘𝗦 !! <3 ꒱ 
  
