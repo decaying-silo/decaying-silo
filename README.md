@@ -1,6 +1,6 @@
 ![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gifv) ❝ We're a perfect paragon of pleasing ... We are a perfect paragon of perilous. ❞ ![](https://64.media.tumblr.com/822f8d8b73f81c79e05c5a84c647e371/8b76d125a93110fe-4d/s75x75_c1/f1c3bd1c80f3da13a53eb2f7a8f2546b3464b73b.gifv)
 
-  ![hikkipz on tumblr!](https://64.media.tumblr.com/35b6d28df41ed953ffbca2efa6aa58b3/6371967852f5b89e-8e/s640x960/6d064fbc38d6165306db0edad21abdc266a55e84.gifv)
+  ![zettaiiya on tumblr!](https://media.discordapp.net/attachments/1481576291793633310/1513050234631098499/3806E70B-01A1-43F3-AB9D-0E6E310AF949.gif?ex=6a2aee97&is=6a299d17&hm=61d0e496e62ee671f9582b4d7c83630569f30b7847f5c5fbe5598eef7a867de7&=&width=450&height=293)
 
 𝗦𝗜𝗟𝗩𝗘𝗥 !! ┆ 𝗦𝗛𝗘/𝗜𝗧 ![](https://64.media.tumblr.com/d6d10db160915a43250f36b3f502b7d2/a37b066fbd53f8a4-6e/s75x75_c1/b287aaf6bafec60532da8e448ab896c6bcea09f2.gifv)
 
